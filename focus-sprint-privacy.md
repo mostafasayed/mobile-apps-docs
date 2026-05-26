@@ -81,7 +81,7 @@ You can:
 
 For privacy questions or support, contact:
 
-support@example.com
+ai.automation.mostafa@gmail.com
 
 Replace this email with your real support email before publishing.
 

@@ -83,7 +83,6 @@ For privacy questions or support, contact:
 
 ai.automation.mostafa@gmail.com
 
-Replace this email with your real support email before publishing.
 
 ## Changes
 
